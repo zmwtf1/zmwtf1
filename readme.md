@@ -1,1 +1,1 @@
-# Hi im Zmwtf1 and im just tryna make it as a dev
+# Hello, I am zmwtf, and I am trying to make it as a developer.
